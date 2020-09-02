@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Bienvenido a mi pagina lokas
 
-I'm glad you are here. I plan to talk about ...
+Como llegaron, no se, pero bueno, ponganse comodos.
